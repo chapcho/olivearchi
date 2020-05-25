@@ -1,2 +1,0 @@
-# olivearchi-hp
-homepage
